@@ -1,4 +1,2 @@
 - 👋 Hi, I’m @Marittielloh
-- 👀 I’m interested in dogs
-- 🌱 I’m currently learning (ikall)
-- 📫 How to reach me @marittielloh tg
+- 📫 How to reach me @marittielloh tg/ig
